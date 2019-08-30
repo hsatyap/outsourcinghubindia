@@ -2,7 +2,7 @@
 
 Accounting is the backbone of any business. No matter how big or small, every enterprise is required to maintain updated accounts to ensure smooth functioning and for measuring success parameters. In a fast-paced, dynamic marketplace, outsourcing accounting and payroll services can help build collaborative partnerships and strategic relationships at minimal costs. Being an integral part of a business organization, outsourcing non-core activities like accounting and payroll services can prove beneficial in more ways than one.
 
-##10 Advantages of Outsourcing Accounting and Payroll Services
+##10 Advantages of Outsourcing Accounting and Payroll Services##
 
 **Outsourcing Accounting** and Payroll Services adds value to an organization as it helps in streamlining core business operations by imparting a better understanding of cash flow requirements and sources. Here is a list of the benefits that a company obtains when outsourcing accounting and payroll services.
 
